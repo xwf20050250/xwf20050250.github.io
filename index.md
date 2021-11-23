@@ -1,3 +1,5 @@
+# 隐私政策
+
 FENG HUAN網路隱私政策
 引言
 FENG HUAN網路非常重視用戶的個人資訊和隱私保護,FENG HUAN網路承諾保護使用FENG HUAN網路產品及/或服務的用戶的隱私。您在使用FENG HUAN網路產品及/或服務時，FENG HUAN網路可能會收集和使用您的相關資訊。FENG HUAN網路希望通過本《隱私政策》向您說明，在使用FENG HUAN網路產品及/或服務時，FENG HUAN網路如何收集、使用、分享、保存和管理這些資訊。
